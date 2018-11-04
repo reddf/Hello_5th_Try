@@ -10,3 +10,5 @@ This is your first warning--we come in peace!
 Humans, this is your second warning--we come in Peace! Ask the people of Mar, they will tell you how peaceful we are.
 
 This is your third warning and we bring you no harm. We ask that you work with us!
+
+We are taking over your cities! This is your fourth warning! Attention all humans! This is your fourth warning.
