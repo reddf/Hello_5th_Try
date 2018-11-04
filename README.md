@@ -9,3 +9,11 @@ This is your first warning--we come in peace!
 
 Humans, this is your second warning--we come in Peace! Ask the people of Mar, they will tell you how peaceful we are.
 
+This is your third warning! Attention humans, this is your third warning!
+
+Humans, this is your fourth warning! Humans this is your fourth warning!
+
+Attention! Attention! All humans you are hereby order to comply!
+
+Attention all humans! This is your finally warning! Comply NOW!
+
